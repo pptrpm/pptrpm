@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @pptrpm I’m currently learning faculty liberal arts
